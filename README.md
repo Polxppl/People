@@ -1,3 +1,3 @@
 Paweł
-Gabryś
+Gabriel
 Mateusz
